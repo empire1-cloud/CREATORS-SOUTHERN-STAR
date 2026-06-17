@@ -1,4 +1,4 @@
-CREATORS SOUTHERN STAR — Movement License v2 (Soul Edition)
+CREATORS SOUTHERN STAR — Movement License v1 (Soul Edition)
 
 Wildflowers still bloom through concrete. So do we.
 
